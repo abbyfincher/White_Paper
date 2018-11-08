@@ -34,6 +34,7 @@ Grizzly bear movement over a range to see patterns and preferred area, such as t
 [Defining Herbaceous Plants](https://www.thespruce.com/what-are-herbaceous-plants-2131063)
 
 [What is Wildlife Rehabilitaiton?](https://www.paws.org/wildlife/center/rehabilitation/)
+- Wildlife rehab is another term for wildlife recovery
 
 [Wildlife Corridors](https://en.wikipedia.org/wiki/Wildlife_corridor)
 - Helps define linkage habits - wildlife corridors are another term for linkage habits
