@@ -23,3 +23,7 @@ Whenever you go backpacking during the spring or summer in the west, you run the
 
 Also, never go alone when you go hiking or backpacking. Always have at least one friend accompany you. This guarantees safety in numbers and, if something does go wrong, there is someone else there that can call or go looking for help.
 Remember that grizzly bears are wild animals and you’re in their space. They may be more aggressive during the spring since they are looking for food and for mates. Never get in the way of a grizzly and its target and never come between a mother bear and her cubs. Stay safe and enjoy the great outdoors.
+
+
+What do you do when you are face to face with one?
+What is a good month to go hiking?
