@@ -25,3 +25,11 @@ Specificity of your needs - general search engine (good starting point for learn
 - Begin searching based on those new terms you've pulled out to understand what you're looking for
 
 Gathering Background > One big source - piece of data or argument that drives the whole piece - one thing you're relating or responding to 
+
+## Other Stuff
+
+Audience - Topic, form
+
+CTA ???
+
+Sources
